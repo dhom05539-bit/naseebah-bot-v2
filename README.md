@@ -1,1 +1,0 @@
-# naseebah-bot-v2
